@@ -1,0 +1,2 @@
+- 👋 Olá, Eu ou Marco Aurélio de Barros
+- 👀 Sou técnico pedagógico da SEED-PR do Programa Edutech
